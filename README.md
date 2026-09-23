@@ -60,5 +60,5 @@ Seguir desarrollando mis habilidades, crear proyectos que me permitan aplicar mi
 
 **GitHub:** github.com/Gleiceromar
 
-**LinkedIn:** próximamente
+**LinkedIn:** linkedin.com/in/gleicer-omar-castillo-001bb5439
 
